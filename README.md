@@ -1,1 +1,1 @@
-Olá, sou Caio Aguera estudo na faculdade de tecnologia de Presidente Prudente no curso de ADS, estou terminando o curso e queria conseguir um trabalho na área de informática. Pois gosto desse tipo de trabalho mas não sou um bom programador.
+Olá, sou Caio Aguera Zanini Pereira, estudo na faculdade de tecnologia de Presidente Prudente no curso de Análise e Desenvolvimento de Sistemas, estou terminando o curso e procuro um emprego na área de informática. Pois gosto dessa área, tenho um curso básico de informática pela Prepara Cursos em Pirapozinho
